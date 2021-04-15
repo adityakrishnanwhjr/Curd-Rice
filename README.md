@@ -1,0 +1,1 @@
+This is a curd Rice recipe.
